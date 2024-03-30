@@ -1,3 +1,9 @@
 ### ![](https://cdn.discordapp.com/attachments/1066733325823246488/1223734733733761095/ezgif-1-f25541c4bd.gif?ex=661aeec8&is=660879c8&hm=0666a9229df1dc9df5aeb30ed273207ae5cc08a2c330e3fdb3596782a2ba97e5&) welcome to my profile! ೀ
 ![](https://cdn.discordapp.com/attachments/1066733325823246488/1223736139374919710/ezgif-1-c9f887c381.gif?ex=661af017&is=66087b17&hm=b5b5610907738ee4197f754c000184bfe99118f6b2ac1aef72089777003f6666&)
 ***
+**ᰔ** • ‎  **m**ake sure to check my straw page for more **info** about me! ⍢
+
+
+**ᰔ** •  ‎ **c+h** always in pt <3
+
+***
